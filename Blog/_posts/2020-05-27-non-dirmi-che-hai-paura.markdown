@@ -1,0 +1,27 @@
+---
+layout: post
+title:  "Non Dirmi Che Hai Paura"
+date:   2020-05-27 14:33:03 +0200
+categories: Recensione
+---
+Buongiorno a tutti,
+
+come primo post di questo mio blog, vorrei parlare di un racconto molto interessante che ho letto qualche settimana fa, "Non dirmi che hai paura", scritto da un autore italiano chiamato Giuseppe Catozzella. 
+
+# **Introduzione al Libro**
+
+Questo romanzo narra della vita della famosa atleta somala, Saamiya Yusuf Omar (chiamata semplicemente Samia nel libro), partendo dalla sua giovinezza fino al giorno in cui morì, come ben sappiamo, annegata mentre cercava di raggiungere le coste italiane. Per rendere questo suo libro il più veritiero possibile, Catozzella si fece dare informazioni su Saamiya proprio da sua sorella, Odan, oltre che da altre persone molto vicine all'atleta. 
+
+Il romanzo inizia con Samia e il suo migliore amico, Alì, sudaticci che si riposano sotto l'ombra di un'acacia, dopo una grande corsa sotto il sole cocente. In quel momento ad Alì venne subito l'idea di chiedere a Samia se lei poteva diventare sua sorella, sua *Aabayo*, lei non accettò subito, anzi disse ad Alì che se la voleva veramente come sua sorella avrebbe dovuto riuscire a prenderla. Allora lui si mise a correre come un forsennato e riuscì a catturarla, facendola diventare di fatto sua sorella con un "giuramento". Da lì Samia cominciò a crescere una grande passione per l'atletica leggera che la porterà a vivere mille vicende solo per diventare la velocista più veloce al mondo.
+
+# **Recensione**
+
+Il racconto di Catozzella si dimostra piuttosto scorrevole costellato, però, in alcuni punti da tempi morti in cui non succede nulla. È presente una terminologia semplice e di facile comprensione, però a discapito di questo sono presenti, in piccola misura, anche termini un po' complessi che possono suonare ridondanti. La parte peggiore del libro sono i dialoghi, che possono suonare la maggior parte delle volte innaturali, soprattutto nelle conversazioni in cui ci sono protagonisti bambini, che parlano con termini un po' troppo adulti prendendo in considerazione la loro età. La parte, invece, uscita meglio del libro sono le descrizioni dei paesaggi, che risultano suggestive, e come vengono espresse le emozioni da alcuni personaggi, che sembrano piuttosto vere, un esempio di questo è Alì, che ogni volta che si sente triste sale su un albero stando anche a digiuno. 
+
+*Se dovessi dare un voto al libro, sarebbe 7 perchè, nonostante i pregi, il libro continua ad  essere appesantito da difetti onnipresenti per tutta la durata dell'opera, che sono molto notabili e danno fastidio in maniera quasi costante.*
+
+# **Considerazioni Finali**
+
+Il libro lo consiglio a tutti, potrà piaciere o meno, ma racconta pur sempre la storia di una coraggiosa atleta somala, Saamiya... una storia che dovrebbe essere conosciuta e vissuta da più persone possibili. A chi è interessato, può trovare il libro al seguente indirizzo [Amazon](https://www.amazon.com/Non-dirmi-che-paura-Italian/dp/B00YYIXHL8/). 
+
+Vi auguro una buona giornata a tutti.
