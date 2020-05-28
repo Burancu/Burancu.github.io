@@ -3,6 +3,7 @@ layout: post
 title:  "Non Dirmi Che Hai Paura"
 date:   2020-05-27 14:33:03 +0200
 categories: Recensione
+permalink: /recensione/2020/05/27/non-dirmi-che-hai-paura.html
 ---
 Buongiorno a tutti,
 
